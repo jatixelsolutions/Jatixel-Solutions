@@ -1,1 +1,1 @@
-# Jatixel-Solutions
+# Jatixel Solutions
